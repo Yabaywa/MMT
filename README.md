@@ -6,4 +6,4 @@ Also if you want to suggest me things i should add to this program tell me in th
 
   Discord is down there
 
-══════COMMING SOOn═══════
+══════COMMING SOON═══════
